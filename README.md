@@ -1,0 +1,2 @@
+# yetkazibbberish
+Mahsulotni yetkazib berish 
